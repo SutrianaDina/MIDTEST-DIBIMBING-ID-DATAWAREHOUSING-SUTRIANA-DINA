@@ -1,0 +1,1 @@
+UJIAN TENGAH SEMESTER DIBIMBING.id-Sutriana Dina-Datawarehousing-PYTHON-SQL
